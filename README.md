@@ -3,10 +3,10 @@ Best Golf Training Simulators 2024: Enjoy Cutting-Edge Technology at Home
 
 <h2>Top Golf Training Simulators 2024: Enjoy Cutting-Edge Technology at Home</h2>
 
-<h3><a href="https://www.sjrbss.com/indoor-golf-special" target="_blank"><span></span></a></h3>
+<h3><a href="https://www.sjrbss.com/indoor-golf-special" target="_blank"><h2><span class="highlight-gold">!!! Get 5% OFF EVERYTHING - Click Here- Official Indoor Golf Website!!!​</span></h2></a></h3>
 
 <div class="uds-highlighted-heading">
-<h2><span class="highlight-gold">!!! Get 5% OFF EVERYTHING - Click Here- Official Indoor Golf Website!!!​</span></h2>
+
 </div>
 
 <p>&nbsp;</p>
